@@ -1,4 +1,4 @@
-# Michael_Liu93 + gas1618 Skill
+# Michael_Liu93 Skill
 
 `Michael_Liu93` 主导、`gas1618` 风险滤镜增强的加密市场交易决策与市场分析 Skill。
 
